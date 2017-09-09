@@ -1,1 +1,1 @@
-hello, its me thegreatkang
+hello, its me thegreatkang. I am awesome.
